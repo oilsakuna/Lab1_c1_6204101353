@@ -1,2 +1,2 @@
-# Lab1_6204101353
+# Lab1_6204101353_Sakuna Thanasathian
  
